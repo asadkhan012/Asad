@@ -1,6 +1,6 @@
 Turning coffee ☕ into code 💻</br>
 Building websites, solving problems, and learning every day 🚀</br>
-Open to collaboration and new opportunities ✨<br>
+Open to collaboration and new opportunities ✨</br>
 
 
 ##
